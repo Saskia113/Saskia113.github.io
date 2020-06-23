@@ -12,3 +12,5 @@ Michael Scofield ist ein Hauptcharakter der Serie „Prison Break“. Nachdem se
 * Mitglied der Fox River 8
 
 > You know, we spend so much of our lives not saying the things we want to say, the things we should say. We speak in code and we send little messages. So now, plainly, simply, I want to say that I love you both very much.
+
+<img src="https://i.pinimg.com/736x/ac/f7/2f/acf72f3c8327e573a24d94f7c490d5e8.jpg"/>
