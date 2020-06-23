@@ -10,3 +10,5 @@ Michael Scofield ist ein Hauptcharakter der Serie „Prison Break“. Nachdem se
 * sehr hohe Intelligenz
 * besitzt ein Tattoo des Fluchtplans
 * Mitglied der Fox River 8
+
+> You know, we spend so much of our lives not saying the things we want to say, the things we should say. We speak in code and we send little messages. So now, plainly, simply, I want to say that I love you both very much.
